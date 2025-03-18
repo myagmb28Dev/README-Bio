@@ -1,5 +1,5 @@
 ## 📒 About Me
-Like what i used to be
+Like what i used to be, in my way.
 <br/>
 
 ## 🎮 Social Media
